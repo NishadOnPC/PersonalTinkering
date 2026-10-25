@@ -1,2 +1,2 @@
 # PersonalTinkering
-Yeah my stuff
+Learning curve :]
